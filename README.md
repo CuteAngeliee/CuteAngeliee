@@ -17,7 +17,7 @@ Or if you make 'weak' or 'thwomp' jokes, or are generally weird towards my Infin
 
                                                           !! PLEASE READ !!
 
-If you had problem with me, please tell me! I won't know what i did wrong if you didn't tell me. We're all grown adults here, let's act like it.
+If you had problem with me, please tell me! I won't know what i did wrong if you didn't tell me.
   
 If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.
   
