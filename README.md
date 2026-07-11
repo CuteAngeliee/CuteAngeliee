@@ -6,8 +6,6 @@
 
 <p>Don't be afraid to interact with me, I enjoy talking to new people (I'm just very shy + anxious)</p>
 
-<p>And if you are under 17 please DNI on ponytown.</p>
-
 <p>I have memory loss, sorry if I forget anything important!</p>
 
 <p>If you have one of my f/o so i had to mute you or hide you, sorry.</p>
