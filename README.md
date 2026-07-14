@@ -6,7 +6,7 @@ I'm Rookie/Angel/Nick! ♡
 
 I have bad memory and very shy + anxious + overthink much, while i'm speaking to some people on PT i type fast and you will see mistakes in my write sometimes. !!
 
-But I'm a kind person! And i promise I'm nice! Don't be afraid to intract, i enjoy to speak to new people.
+But I'm a kind person! And i promise I'm nice! Don't be afraid to interact, i enjoy to speak to new people.
 
 I like to make ponies so much!! when i have my breaktime i do new ponies! (Also making much ponies of infinite so don't be confused i love him and i'm very nonsharing of him, unless if you are a close friend or i had allowed that.)
 
