@@ -20,8 +20,6 @@ Please anyone, stranger or not my friend please do NOT cover me unless friend, i
 
 If you are stranger, not my friend, Do not make jokes or mock on my infinite pony by call him "weak" or smth it makes me discomfort too.
 
-If you are chatting with me don't think that means we are friends, I don't really make friends much but i do chat you have to understand that.
-
 You have problem with me? Please tell me! I just don't remember things much and won't know what i did! please respect that. (Just if you didn't tell me so i guess i will have to mute you, sorry, until i know what i did wrong because you didn't tell me.)
 
 I do not like to cause problem much and i do not like to harrass anyone or cause them to be sad.
