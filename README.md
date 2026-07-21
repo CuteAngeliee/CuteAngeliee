@@ -1,6 +1,6 @@
 ≽(•⩊ •マ≼ Hi!!
 
-I'm Rookie/Angel/Nick! ♡
+I'm Rookie! also go by Angel and Nick! ♡
 
  I'm 14 year old! my birthday in 5/20 !!
 
